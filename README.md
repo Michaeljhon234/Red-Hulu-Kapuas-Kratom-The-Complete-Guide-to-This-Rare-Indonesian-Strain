@@ -305,6 +305,3 @@ For those seeking to experience the exceptional qualities of authentic Red Hulu 
 The future of Red Hulu Kapuas kratom depends on continued commitment to quality, sustainability, and responsible use. By maintaining these standards, this extraordinary strain can continue providing its unique benefits while preserving the traditional knowledge and environmental conditions that make it possible.
 
 
-**Meta Title:** Red Hulu Kapuas Kratom: Complete Guide to Effects & Quality
-
-**Meta Description:** Discover Red Hulu Kapuas kratom's unique properties, effects, and sourcing. Complete guide to this rare Indonesian strain with dosage tips and quality indicators.
